@@ -1,1 +1,0 @@
-Hi, I'm Richard, a dedicated coder with a passion for solving problems and creating user-friendly websites. With experience in debugging and web development, I specialize in helping startups establish a solid online presence. Whether you need efficient debugging or a professional website, I'm here to turn your vision into reality. Let's collaborate to bring your ideas to life!
